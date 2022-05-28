@@ -1,2 +1,2 @@
-# DREKKA-ALLA-N-TTINA-
+DREKKA-ALLA-NÓTTINA
 Hröðun, Aðlaðandi, Fallegt 
